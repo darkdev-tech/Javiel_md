@@ -2,7 +2,7 @@
   </p>
  
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/9kQGvLgb/IMG-20250227-WA0037.jpg" alt="IMG-20250227-WA0037" border="20"></a><br /></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/Gvg8wszQ/1743837507587.jpg" alt="IMG-20250227-WA0037" border="20"></a><br /></a>
 </p>
 
 𝗙𝗢𝗥𝗞 𝗥𝗘𝗣𝗢 
